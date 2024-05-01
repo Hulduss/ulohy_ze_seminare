@@ -1,0 +1,1 @@
+# ulohy_ze_seminare
